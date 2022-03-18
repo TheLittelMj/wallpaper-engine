@@ -5,3 +5,4 @@ hintergrund der die naruto/naruto shippuden (kein boruto schmutz) story erklärt
 der dateipfad damit man den ordner einfügen kann ist:  C:\Program Files (x86)\Steam\steamapps\common\wallpaper_engine\projects\myprojects
 
 leak: er ist fertig kommt auf mein dc und schreibt mich an 🥳
+https://discord.gg/2hJ7CUjgx9
